@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on improving git pushes lmao.<br>🤝 I’m looking for help with your Dar Projects.<br>🌱 I’m currently learning German Deutsch A2.<br>💬 Drop me a hi on Whatsapp.<br>⚡ Fun fact : All poo is pee, but not all pee includes poo.
+🔭 I’m currently working on improving git pushes lmao.<br>🌱 I’m currently learning German Deutsch A2.<br>💬 Drop me a hi on Whatsapp.<br>⚡ Fun fact : All poo is pee, but not all pee includes poo.
 
 
 ## 🌐 Socials:
